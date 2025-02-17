@@ -18,7 +18,7 @@ Onlyfans属于海外服务，正常国内的卡无法进行支付，订阅时都
 
 我是用的是wildcard，平时Google进行支付时，或者升级GPT都是用这个，而且也非常稳定。**目前稳定使用了一年多，另外对于虚拟卡产品，你需要消费多少就充值多少就行，切勿充值过多。**
 
-> **wildcard官网**：[http://wildscard.com/](http://wildscard.com/)
+> **wildcard官网**：[wildscard.com/](https://wildscard.com/)
 
 ![img](https://pic4.zhimg.com/80/v2-f99e221b60705c17c47701221f58ba9a_720w.jpg)
 
@@ -71,4 +71,4 @@ OnlyFans、Patreon、ChatGPT Plus、Claude Pro、Luma、Poe、Coze、GitHub 等�
 注意，绑卡填地址的时候，一定要从 onlyfans 地址补全的下拉框里面选，随意选择即可，有小概率我们提供的账单地址没法匹配到，这个时候，随意从下拉框里面选择一个接近地址的即可。
 
 
-兄弟们，帮到你这了！另外值得思考的是，为什么现在开放访问Onlyfans，你有什么看法呢？
+兄弟们，帮到你这了！
