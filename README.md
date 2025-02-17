@@ -5,6 +5,8 @@ Onlyfans属于海外服务，正常国内的卡无法进行支付，订阅时都
 
 **那么如何订阅onlyfans或者怎么去解决支付绑卡的问题呢？答案：可以使用虚拟卡。**
 
+> 虚拟卡申请：[wildscard.com](https://wildscard.com)
+
 通过虚拟卡的方式，可以快速绑定支付onlyfans，这种相对于小白来说，是最轻松和简单的方式。**我大约花费5分钟左右就完成了。**
 
 ![img](https://pic3.zhimg.com/80/v2-0e6777cd30b3a1006416742d39f4e196_720w.jpg)
